@@ -1,0 +1,2 @@
+# Hadi-repo
+Buat kedepan
